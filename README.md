@@ -1,1 +1,2 @@
-# Editing-App
+# Capcut Editing App
+Custom video export resolution, HD video editor supports 4K 60fps exports and smart HDR. Adjust the format and share with your friends on social media platforms. CapCut is a free all-in-one video editor and video maker application with everything you need to create stunning, high-quality videos. The easiest options include direct download from the website by clicking the CapCut download button or getting the CapCut [editing app](https://getcapcutapk.com/) free download from the Google Play Store or Apple Store if you're an Android or iOS user. CapCut is a free video editing app, available on both mobile (iOS and Android) and desktop versions. You can also download this app for your Mac or PC. 
